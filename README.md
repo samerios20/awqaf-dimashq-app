@@ -1,0 +1,1 @@
+# awqaf-dimashq-app
